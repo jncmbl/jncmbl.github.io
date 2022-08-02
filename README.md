@@ -1,2 +1,2 @@
 # jncmbl.github.io
-My musings
+My musings. Not all that impressive.
